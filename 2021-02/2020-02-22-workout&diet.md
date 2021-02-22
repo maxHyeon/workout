@@ -5,7 +5,8 @@
     - 4M 4Set  
   * Sandback & Shadow
     - 5M 5Set
----   
+
+
 ### Today Diet
 ---
 * Skip breakfast
@@ -15,7 +16,8 @@
 * Dinner
   - One hotdog
   - Two crokmush
----
+
+
 ## Today Comment
 ---
 * I have to move more during i am working.
