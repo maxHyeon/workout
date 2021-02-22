@@ -10,3 +10,9 @@
 * Launch
   - Chicken Breast 150g
   - handful of cherry tomatoes and blueberry
+* Dinner
+  - One hotdog
+  - Two crokmush
+
+## Today Comment
+* I have to move more during i am working.
